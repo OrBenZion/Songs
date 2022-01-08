@@ -27,7 +27,7 @@
 
 [Chords](https://www.tab4u.com/tabs/songs/893_%D7%91%D7%A8%D7%99_%D7%A1%D7%97%D7%A8%D7%95%D7%A3_%D7%95%D7%A8%D7%9E%D7%99_%D7%A4%D7%95%D7%A8%D7%98%D7%99%D7%A1_-_%D7%94%D7%A4%D7%95%D7%9A.html)
 
-# 6.ברי סחרוף - כמה יוסי
+# 6. ברי סחרוף - כמה יוסי
 [Youtube](https://www.youtube.com/watch?v=jqfmk2RLwA4)
 
 [Chords](http://www.israeli-guitar.com/chords/index.php?letter=%C3%A1&artist_id=38&song_id=227)
@@ -36,3 +36,15 @@
 [Youtube](https://www.youtube.com/watch?v=iptmRfE1RBQ)
 
 [Chords](https://tabs.ultimate-guitar.com/tab/jet/are-you-gonna-be-my-girl-chords-1058317)
+
+# 7. Foo fighters - Walking after you
+
+[Youtube](https://www.youtube.com/watch?v=UnzWf6AcVqk)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/foo-fighters/walking-after-you-chords-1702053)
+
+# 8. Jimi Handrix  - Little Wing
+
+[Youtube](https://www.youtube.com/watch?v=72ABomY0MmA)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/jimi-hendrix/little-wing-chords-11745)
