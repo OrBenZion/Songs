@@ -37,13 +37,13 @@
 
 [Chords](https://tabs.ultimate-guitar.com/tab/jet/are-you-gonna-be-my-girl-chords-1058317)
 
-# 7. Foo fighters - Walking after you
+# 8. Foo fighters - Walking after you
 
 [Youtube](https://www.youtube.com/watch?v=UnzWf6AcVqk)
 
 [Chords](https://tabs.ultimate-guitar.com/tab/foo-fighters/walking-after-you-chords-1702053)
 
-# 8. Jimi Handrix  - Little Wing
+# 9. Jimi Handrix  - Little Wing
 
 [Youtube](https://www.youtube.com/watch?v=72ABomY0MmA)
 
