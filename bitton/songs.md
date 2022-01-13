@@ -49,7 +49,7 @@
 
 [Chords](https://tabs.ultimate-guitar.com/tab/jimi-hendrix/little-wing-chords-11745)
 
-# 10. Jimi Handrix  - Little Wing
+# 10. Arctic Monkeys - Black Treacle
 
 [Youtube](https://www.youtube.com/watch?v=88WZctFFaAU)
 
