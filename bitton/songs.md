@@ -48,3 +48,9 @@
 [Youtube](https://www.youtube.com/watch?v=72ABomY0MmA)
 
 [Chords](https://tabs.ultimate-guitar.com/tab/jimi-hendrix/little-wing-chords-11745)
+
+# 10. Jimi Handrix  - Little Wing
+
+[Youtube](https://www.youtube.com/watch?v=88WZctFFaAU)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/arctic-monkeys/black-treacle-chords-1058498)
