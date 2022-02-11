@@ -54,3 +54,31 @@
 [Youtube](https://www.youtube.com/watch?v=88WZctFFaAU)
 
 [Chords](https://tabs.ultimate-guitar.com/tab/arctic-monkeys/black-treacle-chords-1058498)
+
+# 11. Beatles - Taxman
+
+[Youtube](https://www.youtube.com/watch?v=l0zaebtU-CA)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/the-beatles/taxman-chords-17439)
+
+# 12. David Bowie - Moonage Daydream
+
+[Youtube](https://www.youtube.com/watch?v=JFDj3shXvco)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/david-bowie/moonage-daydream-chords-526295)
+
+# 13. Mac DeMarco - Freaking Out The Neighborhood
+
+[Youtube](https://www.youtube.com/watch?v=88WZctFFaAU)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/mac-demarco/freaking-out-the-neighborhood-chords-1727305)
+
+# 10. Arctic Monkeys - When The Sun Goes Down
+
+[Youtube](https://www.youtube.com/watch?v=2Ia83vSh-kg)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/arctic-monkeys/when-the-sun-goes-down-chords-274267)
+
+
+
+
