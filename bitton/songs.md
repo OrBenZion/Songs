@@ -73,7 +73,7 @@
 
 [Chords](https://tabs.ultimate-guitar.com/tab/mac-demarco/freaking-out-the-neighborhood-chords-1727305)
 
-# 10. Arctic Monkeys - When The Sun Goes Down
+# 14. Arctic Monkeys - When The Sun Goes Down
 
 [Youtube](https://www.youtube.com/watch?v=2Ia83vSh-kg)
 
