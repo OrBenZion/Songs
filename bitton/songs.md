@@ -69,7 +69,7 @@
 
 # 13. Mac DeMarco - Freaking Out The Neighborhood
 
-[Youtube](https://www.youtube.com/watch?v=88WZctFFaAU)
+[Youtube](https://www.youtube.com/watch?v=MeRIAew8eXc)
 
 [Chords](https://tabs.ultimate-guitar.com/tab/mac-demarco/freaking-out-the-neighborhood-chords-1727305)
 
