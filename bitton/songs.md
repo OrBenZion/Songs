@@ -97,7 +97,7 @@
 
 [Chords](https://tabs.ultimate-guitar.com/tab/cold-war-kids/we-used-to-vacation-chords-834097)
 
-# 17. David Bowie - Ashes to Ashes
+# 18. David Bowie - Ashes to Ashes
 
 [Youtube](https://www.youtube.com/watch?v=1uuorcrtmNY)
 
