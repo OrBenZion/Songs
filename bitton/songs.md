@@ -79,6 +79,32 @@
 
 [Chords](https://tabs.ultimate-guitar.com/tab/arctic-monkeys/when-the-sun-goes-down-chords-274267)
 
+# 15. Foo Fighters - Monkey Wrench
+
+[Youtube](https://www.youtube.com/watch?v=aKp5v588-Vs)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/foo-fighters/monkey-wrench-chords-439056)
+
+# 16. Queens of the Stoneage - Go With The Flow
+
+[Youtube](https://www.youtube.com/watch?v=zmVpXLaSk24)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/queens-of-the-stone-age/go-with-the-flow-chords-98249)
+
+# 17. Cold War Kids - We Used to Vacation
+
+[Youtube](https://www.youtube.com/watch?v=8GlrDOjYszI)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/cold-war-kids/we-used-to-vacation-chords-834097)
+
+# 17. David Bowie - Ashes to Ashes
+
+[Youtube](https://www.youtube.com/watch?v=1uuorcrtmNY)
+
+[Youtube - Warpaint version - ביטון תאכל ת'כובע](https://www.youtube.com/watch?v=Cz4-yaxPp8I)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/david-bowie/ashes-to-ashes-chords-981508)
+
 
 
 
