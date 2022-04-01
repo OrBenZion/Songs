@@ -91,13 +91,25 @@
 
 [Chords](https://tabs.ultimate-guitar.com/tab/queens-of-the-stone-age/go-with-the-flow-chords-98249)
 
-# 17. Cold War Kids - We Used to Vacation
+# 17. Radiohead - Just
+
+[Youtube](https://www.youtube.com/watch?v=aTto5j32B-0)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/radiohead/just-chords-196011)
+
+# 18. Radiohead - The Bends
+
+[Youtube](https://www.youtube.com/watch?v=K8z8hLvjb_U)
+
+[Chords](https://tabs.ultimate-guitar.com/tab/radiohead/the-bends-chords-1058195)
+
+# 19. Cold War Kids - We Used to Vacation
 
 [Youtube](https://www.youtube.com/watch?v=8GlrDOjYszI)
 
 [Chords](https://tabs.ultimate-guitar.com/tab/cold-war-kids/we-used-to-vacation-chords-834097)
 
-# 18. David Bowie - Ashes to Ashes
+# 20. David Bowie - Ashes to Ashes
 
 [Youtube](https://www.youtube.com/watch?v=1uuorcrtmNY)
 
